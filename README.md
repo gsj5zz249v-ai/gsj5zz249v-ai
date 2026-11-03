@@ -1,3 +1,5 @@
+PROFILE
+
 My name is Frimpong Osei Franklin
 I am 30 years of age 
 Experienced and self-motivated sailor and computer science student with hands-on experience in seamanship (deck hand), 
