@@ -2,14 +2,18 @@ My name is Frimpong Osei Franklin
 I am 30 years of age 
 Experienced and self-motivated sailor and computer science student with hands-on experience in seamanship (deck hand), 
 Naval ceremonial and drill and Naval gunnery aiming to leverage on cyber security training to contribute to the sanity and safety of the cyber space for organisations.
+
 EDUCATION BACKGROUND
+
 Ghana Communication Technology University, BSc Computer Science (cyber security option) (pending), Jan 2025 – Sept 2029
 School of Maritime operations Nutekpor, Seaman Gunner first class specialist qualification course, Jun 2025 – Sep 2025
 Leadership Training School Tema, certificate of participation Leading seaman promotion course, Apr 2024 – May 2024
 Alliance Francaise, Naval Base Sekondi, Delf AI, Jan 2021- Mar 2021
 Nkwatia Presbyterian SHS, WASSC, Sep 2011 – Jun 2014
 Pepease Presbyterian Basic School, BEC, Sep 2002 – Apr 2011
+
 WORKING EXPERIENCE
+
 Ministry of Defense,​Naval Rating (Seaman Gunner), Aug 2016 to date
 Pepease Presbyterian Church, Office clerk,​Aug 2014- Apr 2016
 SKILLS AND COMPETENCE
