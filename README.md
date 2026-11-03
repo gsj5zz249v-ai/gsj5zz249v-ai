@@ -18,7 +18,9 @@ WORKING EXPERIENCE
 
 Ministry of Defense,​Naval Rating (Seaman Gunner), Aug 2016 to date
 Pepease Presbyterian Church, Office clerk,​Aug 2014- Apr 2016
+
 SKILLS AND COMPETENCE
+
 Good communication skills in multi-national languages, competent in coding in C++ languages, ability to understand the threats in cyber security, efficient in Naval drill and ceremonials, a seasoned gunnery yeoman and ability to work together as a team.
 
 HOBBIES AND INTEREST
